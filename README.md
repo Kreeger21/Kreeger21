@@ -4,7 +4,7 @@
 
 ## Summary
 
-- Junior Electrical and Computer Engineering student looking to contribute technical skills, academic excellence, and a strong work ethic to a dynamic co-op or internship opportunity.
+- Senior Electrical and Computer Engineering student looking to contribute technical skills, academic excellence, and a strong work ethic to a dynamic co-op or internship opportunity.
 
 ## Education
 
